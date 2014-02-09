@@ -1,4 +1,4 @@
-# Crème Bûlée
+# Crème Brûlée
 
 ## Ingredients
 
