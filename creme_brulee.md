@@ -2,6 +2,8 @@
 
 ## Ingredients
 
+Serves 8.
+
 * 6 dl double cream
 * 1.75 dl caster sugar
 * 140 g egg yolk
